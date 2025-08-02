@@ -1,2 +1,2 @@
 # TomCash-
-Valor T$
+Valor T$ $(o.oo)
